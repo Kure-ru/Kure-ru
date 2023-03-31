@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/claire-inada/](https://www.linkedin.com/in/claire-inada/)
 
-- ⚡  I speak **Japanese** fluently and I practice **yoga**
+- ⚡ I love **yoga**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
